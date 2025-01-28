@@ -6,4 +6,4 @@ IT Management on 2024. I´m married with Monique, my love, and also I like video
 a master. I don´t have experience yet, but I´m studying for this achievement and help others as an excellent professional since then. Thanks my Lord for 
 everything and give me strengh and capability to conquer this career. I´ll give my all to get this porpouse. 
 "I can do all things through Christ who strengthens me". (Philippians 4:13 NKJV)
-God loves You!!!
+The Lord Jesus Christ loves You!!! Don´t forget it!!!
